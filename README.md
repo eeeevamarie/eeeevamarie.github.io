@@ -1,2 +1,0 @@
-# eeeevamarie.github.io
-eeeevamarie
